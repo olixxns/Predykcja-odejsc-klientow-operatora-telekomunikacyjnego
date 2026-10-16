@@ -1,0 +1,1 @@
+# Predykcja-odej--klient-w-operatora-telekomunikacyjnego
